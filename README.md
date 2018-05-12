@@ -1,0 +1,1 @@
+# klatovy.pirati.cz
